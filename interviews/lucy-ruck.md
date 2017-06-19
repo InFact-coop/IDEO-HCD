@@ -73,3 +73,12 @@ A lot of people who we think fall under the disabled label hate it and don't ide
 ## 10: what would you hope to see in the future?
 
 Culture is the key thing. Process, procedure and policy is all important but we need a culture where people feel welcomed. We need to treat individuals with respect. Understanding why positive discrimination is necessary, e.g. extra time in exams or having a special parking space.
+
+## NOTES FROM AFTER THE INTERVIEW
+
+Lucy contacted us with the following:
+ 
+The Technology Taskforce is a group of individuals from leading global and UK organisations working together to improve the development and use of accessible technology.
+ 
+Also, you might find this case study on Lloyds Banking Group and their workplace adjustments useful, along with the Shell case study, both downloadable from the bottom of this web page
+https://members.businessdisabilityforum.org.uk/resource-category/resource/accessible-technology-charter-reasonable-adjustment/
